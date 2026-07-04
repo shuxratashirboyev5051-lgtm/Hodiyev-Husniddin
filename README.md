@@ -1,1 +1,1 @@
-# Hodiyev-Husniddin
+# Hodiyev Husniddin
